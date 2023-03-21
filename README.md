@@ -72,7 +72,7 @@
 
 ###
 
-<div align="right">
+<div align="center">
   <img height="200" src="https://thumbs.gfycat.com/ShinyPlaintiveAsiantrumpetfish-max-1mb.gif" />
 </div>
 
